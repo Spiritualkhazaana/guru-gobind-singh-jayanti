@@ -1,1 +1,3 @@
-# guru-gobind-singh-jayanti
+# *Guru Gobind Singh Jayanti 2025: Celebrating the Legacy of the 10th Sikh Guru*
+## *Guru Gobind Singh Jayanti is one of the most sacred festivals celebrated by Sikhs and admirers of spirituality across the world. It marks the birth anniversary of Guru Gobind Singh Ji, the tenth guru of Sikhism, a warrior saint, philosopher, poet, and the founder of the Khalsa Panth, who dedicated his life to righteousness, justice, and the spiritual liberation of humanity.* [More details…](https://spiritualkhazaana.com/guru-gobind-singh-jayanti-10th-sikh-guru/)
+## #gurugobindsingh #gurugobindsinghjayanti #chardikala #gurudwara #DasamGranth
